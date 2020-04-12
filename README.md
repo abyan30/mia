@@ -1,2 +1,2 @@
 # mia
-Pingin belajae
+Pingin belajar
